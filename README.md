@@ -144,6 +144,7 @@ Contribute by adding any resources related to Black Friday or Cyber Monday Deals
 | 8 | [ShiftApp Shift Planning](https://shiftapp.com/) | Shift Planning and Employee Scheduling Software - simple and easy to use on Web and Mobile. | 77% OFF for SEVEN MONTHS with code BLACKFRIDAY2023 | 11-17-2023 - 11-30-2023 |
 | 9 | [Linktopus](https://linktopus.co/) | Your own page. All your links and information in one place. Ready in minutes. | Lifetime access for $30 | 11-21-2023 - 11-30-2023 |
 | 10 | [TurboCast](https://turbocast.io/) | TurboCast is the easiest way to start, grow, and monetize your podcast. | 50% OFF FOREVER - No Coupon Needed | 11-21-2023 - 11-30-2023 |
+| 11 | [Pop Invoice](https://popinvoice.com/) | Pop Invoice is the only professional invoicing solution for Notion. | 50% OFF our lifetime PRO deal! Use code BLACKFRIDAYPI50. | 11-21-2023 - 11-30-2023 |
 
 ## Themes & Design Resource
 
@@ -176,6 +177,7 @@ Contribute by adding any resources related to Black Friday or Cyber Monday Deals
 | 5 | [Reply](https://reply.io/) | Reply is the ultimate AI-powered sales engagement platform that helps sales teams to find new leads, engage them via multiple channels, and create endless opportunities at scale.| Get 75% off on all annual plans (first 4 months) + 25% off add-ons with the coupon code HOLIDAY2023 | 11-20-2023 - 12-31-2023 |
 | 6 | [BoltAI](https://boltai.com?ref=bfdeals) - A beautiful & powerful ChatGPT app for Mac. Enjoy 53% off with this discount code AWESOMEBF2023
 | 7 | [PDF Pals](https://pdfpals.com?ref=bfdeals) - Native ChatPDF app for Mac. Enjoy 53% off with this discount code AWESOMEBF2023
+| 8 | [Bunni AI](https://bunni.ai) | Summarise and chat with any PDF. | 50% off any Bunni credit. Use code BLACKFRIDAY50 | 11-20-2023 - 11-30-2023 |
 
 ## Marketplaces
 
